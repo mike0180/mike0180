@@ -4,7 +4,7 @@ Currenctly I'm learning more about Web Development than anything else, but I'm a
 
 I love working on projects and collaborating with others.
 
-You can Reach me through through email at mike_0180@hotmail.com
+You can reach me through through email at mike_0180@hotmail.com
 
 Thanks.
 
